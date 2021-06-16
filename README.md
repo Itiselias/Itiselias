@@ -1,10 +1,6 @@
 - 👋 Hi, I’m @Itiselias
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-
-<!---
-Itiselias/Itiselias is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- 👀 I’m interested in a lot of things luls.
+- 🌱 I’m currently learning how do make pfps for ppl (art).
+- 💞️ I’m looking to collaborate on art and pfps, i am best at making the art.
+- 📫 How to reach me add me on discord (.Elias.#8703) pls keep in mind i would like it if u dm me saying this >> "i would like to collaborate blah blah blah" >> just would like to make sure who u are!
+- 鹿 where to find me on a dicsord server | https://discord.gg/GAudmsPT |
